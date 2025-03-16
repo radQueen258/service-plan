@@ -102,7 +102,6 @@
 
 
 ## **English Service Plan**
-*(For members who do not have a language assigned to them.)*  
 - **Front Door (Church Entrance):** Favour  
 - **Inside the Room:** Moyin, Ini  
 - **Helping Pastor:** Joel  
