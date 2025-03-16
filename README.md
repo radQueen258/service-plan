@@ -1,7 +1,7 @@
 ### We have out 15min Prayer every Sunday at 13:45 / Nous avons notre prière de 15 minutes tous les dimanches à 13h45
 ### Please arrive at least 15 minutes before every service starts / Veuillez arriver au moins 15 minutes avant le début de chaque service
 
-# DRESS CODE
+# DRESS CODE / CODE VESTIMENTAIRE 😊
 
 ## **Dressing Plan for the Next 8 Sundays**
 
@@ -20,7 +20,7 @@
 
 - **April 20, 2025:** This Sunday allows for personal choice in attire, encouraging members to wear colors they prefer😊.
 
-# POSITIONS IF JOINT SERVICE
+# POSITIONS IF JOINT SERVICE / POSTES DU SERVICE INTERARMÉ 😊
 
 ## **Working Plan for the Next 8 Sundays**
 
@@ -101,7 +101,7 @@
 ✔ **All roles rotate fairly so everyone gets a chance to serve in different positions.**  
 ✔ **Language balance is considered at entrance points for better communication.**  
 
-# IF SEPARATE SERVICE😊:
+# IF SEPARATE SERVICE / SI SERVICE SÉPARÉ 😊:
 
 
 ## **English Service Plan**
@@ -113,20 +113,20 @@
 
 ---
 
-## **Portuguese Service Plan**  
-*(No Wardrobe, Offering, or Front Door at Church Entrance; Tea Serving Instead.)*  
-- **Inside the Room:** Radka or Rebeca 
-- **Helping Pastor:** Domingos  
-- **Serving Tea:** Radka & Rebeca  
+## **Plano do Culto Português**
+*(Sem guarda-roupa, oferendas ou porta da frente à entrada da igreja; será servido chá em seu lugar.)*
+- **Dentro da sala:** Radka ou Rebeca
+- **Auxiliar do Pregador:** Domingos
+- **A servir chá:** Radka e Rebeca 
 
 ---
 
-## **French Service Plan**  
-*(No Front Door (Hall Entrance) for this service.)*  
-- **Front Door (Church Entrance):** Esther & Glory  
-- **Inside the Room:** Chanceline, Glory, Leon  
-- **Helping Pastor:** Josue 
-- **Wardrobe:** Josaphat  
-- **Offering:** Esther & Chanceline  
+## **Plan de culte en français**
+*(Pas de porte d'entrée (entrée principale) pour ce service.)*
+- **Porte d'entrée (entrée de l'église) :** Esther et Glory
+- **Intérieur de la salle :** Chanceline, Glory, Léon
+- **Pasteur auxiliaire :** Josué
+- **Armoire :** Josaphat
+- **Offrande :** Esther et Chanceline 
 
 
