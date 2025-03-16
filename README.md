@@ -1,3 +1,6 @@
+### We have out 15min Prayer every Sunday at 13:45 / Nous avons notre prière de 15 minutes tous les dimanches à 13h45
+### Please arrive at least 15 minutes before every service starts / Veuillez arriver au moins 15 minutes avant le début de chaque service
+
 # DRESS CODE
 
 ## **Dressing Plan for the Next 8 Sundays**
