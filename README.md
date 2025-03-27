@@ -33,9 +33,9 @@
 - **Offering:** Esther & Josue  
 
 ### **Sunday, March 30, 2025** (Regular Sunday)  
-- **Front Door (Church Entrance):** Esther & Rebeca  
-- **Front Door (Hall Entrance):** Radka  
-- **Inside the Room:** Chanceline, Favour, Ini  
+- **Front Door (Church Entrance):** Favour & Joel  
+- **Front Door (Hall Entrance):** Ini  
+- **Inside the Room:** Chanceline, Moyin, Josue  
 - **Helping Pastor:** Domingos  
 - **Wardrobe:** Josaphat  
 - **Offering:** Josue & Joel  
