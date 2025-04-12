@@ -10,11 +10,11 @@
 | March 23, 2025       | Black            |
 | March 30, 2025       | Red              |
 | April 6, 2025        | White            |
-| April 13, 2025       | Brown            |
-| April 20, 2025       | Free Choice      |
+| April 13, 2025       | Free Choice      |
+| April 20, 2025       | White            |
 | April 27, 2025       | Black            |
 | May 4, 2025          | Red              |
-| May 11, 2025         | White            |
+| May 11, 2025         | Brown            |
 
 **Notes:**
 
@@ -52,12 +52,12 @@
 - **Sharing Blood:** Esther, Radka & Domingos  
 
 ### **Sunday, April 13, 2025** (Regular Sunday)  
-- **Front Door (Church Entrance):** Josaphat & Rebeca  
+- **Front Door (Church Entrance):** Flora & Rebeca  
 - **Front Door (Hall Entrance):** Favour  
-- **Inside the Room:** Chanceline, Leon, Glory  
+- **Inside the Room:** Ini, Leon, Glory, Kerley, Chanceline 
 - **Helping Pastor:** Joel  
-- **Wardrobe:** Josue  
-- **Offering:** Esther & Domingos  
+- **Wardrobe:** Domingos & Alfredo  
+- **Offering:** Esther & Josue  
 
 ### **Sunday, April 20, 2025** (Regular Sunday)  
 - **Front Door (Church Entrance):** Favour & Josaphat  
