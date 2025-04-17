@@ -18,7 +18,7 @@
 
 **Notes:**
 
-- **April 20, 2025:** This Sunday allows for personal choice in attire, encouraging members to wear colors they prefer😊.
+- **April 23, 2025:** This Sunday allows for personal choice in attire, encouraging members to wear colors they prefer😊.
 
 # POSITIONS IF JOINT SERVICE / POSTES DU SERVICE INTERARMÉ 😊
 
