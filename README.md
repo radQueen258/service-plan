@@ -59,13 +59,13 @@
 - **Wardrobe:** Domingos & Alfredo  
 - **Offering:** Esther & Josue  
 
-### **Sunday, April 20, 2025** (Regular Sunday)  
-- **Front Door (Church Entrance):** Favour & Josaphat  
+### **Sunday, April 20, 2025** (Easter Sunday)  
+- **Front Door (Church Entrance):** Domingos & Lídio 
 - **Front Door (Hall Entrance):** Radka  
-- **Inside the Room:** Rebeca, Glory, Ini  
+- **Inside the Room:** Moyin, Favour, Ini 
 - **Helping Pastor:** Domingos  
-- **Wardrobe:** Leon  
-- **Offering:** Esther & Josue  
+- **Wardrobe:** Leon & Joel
+- **Offering:** Radka & Josue  
 
 ### **Sunday, April 27, 2025** (Regular Sunday)  
 - **Front Door (Church Entrance):** Esther & Rebeca  
