@@ -105,8 +105,8 @@
 
 
 ## **English Service Plan**
-- **Front Door (Church Entrance):** Favour  
-- **Inside the Room:** Moyin, Ini  
+- **Front Door (Church Entrance):** Favour and Moyin
+- **Inside the Room:** Flora, Ini and Kerley  
 - **Helping Pastor:** Joel  
 - **Wardrobe:** Joel (leave the position early to help the Pastor)  
 - **Offering:** Favour & Ini  
@@ -115,9 +115,9 @@
 
 ## **Plano do Culto Português**
 *(Sem guarda-roupa, oferendas ou porta da frente à entrada da igreja; será servido chá em seu lugar.)*
-- **Dentro da sala:** Radka ou Rebeca
+- **Dentro da sala:** Radka/Lidio/Rebecca
 - **Auxiliar do Pregador:** Domingos
-- **A servir chá:** Radka e Rebeca 
+- **A servir chá:** Radka, Rebeca e Lidio
 
 ---
 
