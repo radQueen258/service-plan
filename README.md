@@ -1,4 +1,4 @@
-### We have out 15min Prayer every Sunday at 13:45 / Nous avons notre prière de 15 minutes tous les dimanches à 13h45
+### We have out 15min Prayer every Sunday at 12:30 / Nous avons notre prière de 15 minutes tous les dimanches à 12:30
 ### Please arrive at least 15 minutes before every service starts / Veuillez arriver au moins 15 minutes avant le début de chaque service
 
 # DRESS CODE / CODE VESTIMENTAIRE 😊
@@ -7,59 +7,80 @@
 
 | Date                 | Dress Code Color |
 |----------------------|------------------|
-| March 23, 2025       | Black            |
-| March 30, 2025       | Red              |
-| April 6, 2025        | White            |
-| April 13, 2025       | Free Choice      |
-| April 20, 2025       | White            |
-| April 27, 2025       | Black            |
-| May 4, 2025          | Red              |
-| May 11, 2025         | Brown            |
+| May 04, 2025         | Black and White  |
+| May 11, 2025         | -                |
+| May 18, 2025         | -                |
+| May 25, 2025         | Free Dress Code  |
+| June 01, 2025        | -                |
+| June 08, 2025        | -                |
+| June 15, 2025        | -                |
+| June 22, 2025        | Free Dress Code  |
 
 **Notes:**
 
-- **April 23, 2025:** This Sunday allows for personal choice in attire, encouraging members to wear colors they prefer😊.
+- **May 25 & June 22, 2025:** This Sunday allows for personal choice in attire, encouraging members to wear colors they prefer😊.
 
 # POSITIONS IF JOINT SERVICE / POSTES DU SERVICE INTERARMÉ 😊
 
 ## **Working Plan for the Next 8 Sundays**
 
-### **Sunday, March 23, 2025** (Regular Sunday)  
-- **Front Door (Church Entrance):** Favour & Josaphat  
-- **Front Door (Hall Entrance):** Ini  
-- **Inside the Room:** Rebeca, Glory, Moyin  
-- **Helping Pastor:** Joel  
-- **Wardrobe:** Leon  
-- **Offering:** Esther & Josue  
-
-### **Sunday, March 30, 2025** (Regular Sunday)  
-- **Front Door (Church Entrance):** Favour & Joel  
-- **Front Door (Hall Entrance):** Ini  
-- **Inside the Room:** Chanceline, Moyin, Josue  
-- **Helping Pastor:** Domingos  
-- **Wardrobe:** Josaphat  
-- **Offering:** Josue & Joel  
-
-### **Sunday, April 6, 2025** (First Sunday - Communion Sunday)**  
-- **Front Door (Church Entrance):** Favour & Esther  
+### **Sunday, May 04, 2025** (First Sunday - Communion Sunday)  
+- **Front Door (Church Entrance):** Favour & Kerley 
 - **Front Door (Hall Entrance):** Radka  
-- **Inside the Room:** Glory, Moyin, Ini  
-- **Helping Pastor:** Josaphat  
-- **Wardrobe:** Domingos  
-- **Offering:** Josue & Joel  
-- **Preparing Communion:** Rebeca, Leon, Chanceline  
-- **Sharing Bread:** Favour & Josaphat  
-- **Sharing Blood:** Esther, Radka & Domingos  
+- **Inside the Room:** Lidio, Moyin, Ini, Flora  
+- **Helping Pastor:** Josue  
+- **Wardrobe:** Joel 
+- **Offering:** Ini & Kerley  
+- **Preparing Communion:** Domingos, Lidio, Flora
+- **Sanitizing:** Moyin, Flora, Lidio  
+- **Sharing Bread:** Favour & Ini  
+- **Sharing Blood:** Esther, Radka, Domingos   
 
-### **Sunday, April 13, 2025** (Regular Sunday)  
+### **Sunday, May 11, 2025** (Regular Sunday)  
+- **Front Door (Church Entrance):** Chanceline & Joel  
+- **Front Door (Hall Entrance):** Ini  
+- **Inside the Room:** Favour, Moyin, Josue, Kerley  
+- **Helping Pastor:** Domingos  
+- **Wardrobe:** Lidio  
+- **Offering:** Josue & Joel  
+
+### **Sunday, May 18, 2025** (Regular Sunday)**  
 - **Front Door (Church Entrance):** Flora & Rebeca  
-- **Front Door (Hall Entrance):** Favour  
+- **Front Door (Hall Entrance):** Radka  
 - **Inside the Room:** Ini, Leon, Glory, Kerley, Chanceline 
 - **Helping Pastor:** Joel  
-- **Wardrobe:** Domingos & Alfredo  
-- **Offering:** Esther & Josue  
+- **Wardrobe:** Domingos & Lidio  
+- **Offering:** Esther & Josue   
 
-### **Sunday, April 20, 2025** (Easter Sunday)  
+### **Sunday,  May 25, 2025** (Regular Sunday)  
+- **Front Door (Church Entrance):** Domingos & Lídio 
+- **Front Door (Hall Entrance):** Radka  
+- **Inside the Room:** Moyin, Favour, Ini 
+- **Helping Pastor:** Domingos  
+- **Wardrobe:** Leon & Joel
+- **Offering:** Radka & Josue   
+
+### **Sunday, June 01, 2025** (First Sunday - Communion Sunday)  
+- **Front Door (Church Entrance):** Favour & Kerley 
+- **Front Door (Hall Entrance):** Radka  
+- **Inside the Room:** Lidio, Moyin, Ini, Flora  
+- **Helping Pastor:** Josue  
+- **Wardrobe:** Joel 
+- **Offering:** Joel & Flora  
+- **Preparing Communion:** Domingos, Lidio, Kerley
+- **Sanitizing:** Moyin, Flora, Lidio  
+- **Sharing Bread:** Favour & Ini  
+- **Sharing Blood:** Moyin, Radka, Domingos  
+
+### **Sunday, June 08, 2025** (Regular Sunday)  
+- **Front Door (Church Entrance):** Chanceline & Joel  
+- **Front Door (Hall Entrance):** Ini  
+- **Inside the Room:** Favour, Moyin, Josue, Kerley  
+- **Helping Pastor:** Domingos  
+- **Wardrobe:** Lidio  
+- **Offering:** Josue & Joel   
+
+### **Sunday, June 15, 2025** (Regular Sunday)**  
 - **Front Door (Church Entrance):** Domingos & Lídio 
 - **Front Door (Hall Entrance):** Radka  
 - **Inside the Room:** Moyin, Favour, Ini 
@@ -67,32 +88,13 @@
 - **Wardrobe:** Leon & Joel
 - **Offering:** Radka & Josue  
 
-### **Sunday, April 27, 2025** (Regular Sunday)  
-- **Front Door (Church Entrance):** Esther & Rebeca  
-- **Front Door (Hall Entrance):** Ini  
-- **Inside the Room:** Chanceline, Moyin, Favour  
-- **Helping Pastor:** Josaphat  
-- **Wardrobe:** Josue  
-- **Offering:** Joel & Domingos  
-
-### **Sunday, May 4, 2025** (First Sunday - Communion Sunday)**  
-- **Front Door (Church Entrance):** Favour & Esther  
-- **Front Door (Hall Entrance):** Radka  
-- **Inside the Room:** Leon, Glory, Moyin  
-- **Helping Pastor:** Joel  
-- **Wardrobe:** Domingos  
-- **Offering:** Josue & Josaphat  
-- **Preparing Communion:** Rebeca, Chanceline, Ini  
-- **Sharing Bread:** Josaphat & Domingos  
-- **Sharing Blood:** Esther, Radka & Joel  
-
-### **Sunday, May 11, 2025** (Regular Sunday)  
-- **Front Door (Church Entrance):** Josaphat & Rebeca  
+### **Sunday, June 22, 2025** (Regular Sunday)  
+- **Front Door (Church Entrance):** Flora & Rebeca  
 - **Front Door (Hall Entrance):** Favour  
-- **Inside the Room:** Chanceline, Moyin, Ini  
-- **Helping Pastor:** Domingos  
-- **Wardrobe:** Josue  
-- **Offering:** Esther & Joel  
+- **Inside the Room:** Ini, Leon, Glory, Kerley, Chanceline 
+- **Helping Pastor:** Joel  
+- **Wardrobe:** Domingos & Lidio  
+- **Offering:** Esther & Josue  
 
 ---
 
