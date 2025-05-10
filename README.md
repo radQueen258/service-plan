@@ -8,7 +8,7 @@
 | Date                 | Dress Code Color |
 |----------------------|------------------|
 | May 04, 2025         | Black and White  |
-| May 11, 2025         | -                |
+| May 11, 2025         | Free Dress Code  |
 | May 18, 2025         | -                |
 | May 25, 2025         | Free Dress Code  |
 | June 01, 2025        | -                |
