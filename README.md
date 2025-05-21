@@ -65,7 +65,7 @@
 - **Front Door (Hall Entrance):** Radka  
 - **Inside the Room:** Lidio, Moyin, Ini, Flora  
 - **Helping Pastor:** Josue  
-- **Wardrobe:** Joel 
+- **Wardrobe:** Suspended until next season
 - **Offering:** Joel & Flora  
 - **Preparing Communion:** Domingos, Lidio, Kerley
 - **Sanitizing:** Moyin, Flora, Lidio  
@@ -77,7 +77,7 @@
 - **Front Door (Hall Entrance):** Ini  
 - **Inside the Room:** Favour, Moyin, Josue, Kerley  
 - **Helping Pastor:** Domingos  
-- **Wardrobe:** Lidio  
+- **Wardrobe:** Suspended until next season
 - **Offering:** Josue & Joel   
 
 ### **Sunday, June 15, 2025** (Regular Sunday)**  
@@ -85,7 +85,7 @@
 - **Front Door (Hall Entrance):** Radka  
 - **Inside the Room:** Moyin, Favour, Ini 
 - **Helping Pastor:** Domingos  
-- **Wardrobe:** Leon & Joel
+- **Wardrobe:** Suspended until next season
 - **Offering:** Radka & Josue  
 
 ### **Sunday, June 22, 2025** (Regular Sunday)  
@@ -93,7 +93,7 @@
 - **Front Door (Hall Entrance):** Favour  
 - **Inside the Room:** Ini, Leon, Glory, Kerley, Chanceline 
 - **Helping Pastor:** Joel  
-- **Wardrobe:** Domingos & Lidio  
+- **Wardrobe:** Suspended until next season
 - **Offering:** Esther & Josue  
 
 ---
@@ -110,7 +110,7 @@
 - **Front Door (Church Entrance):** Favour and Moyin
 - **Inside the Room:** Flora, Ini and Kerley  
 - **Helping Pastor:** Joel  
-- **Wardrobe:** Joel (leave the position early to help the Pastor)  
+- **Wardrobe:** Suspended until next season 
 - **Offering:** Favour & Ini  
 
 ---
@@ -128,7 +128,7 @@
 - **Porte d'entrée (entrée de l'église) :** Esther et Glory
 - **Intérieur de la salle :** Chanceline, Glory, Léon
 - **Pasteur auxiliaire :** Josué
-- **Armoire :** Josaphat
+- **Armoire :** --
 - **Offrande :** Esther et Chanceline 
 
 
