@@ -55,10 +55,10 @@
 ### **Sunday,  May 25, 2025** (Thanksgiving Sunday)  
 - **Front Door (Church Entrance):** Domingos & Lídio 
 - **Front Door (Hall Entrance):** Ini  
-- **Inside the Room:** Moyin, Favour, Joel 
+- **Inside the Room:** Moyin, Josué, Joel 
 - **Helping Pastor:** Domingos  
 - **Wardrobe:** Suspended until next season
-- **Offering:** Lidio & Josue   
+- **Offering:** Lídio & Josué  
 
 ### **Sunday, June 01, 2025** (First Sunday - Communion Sunday)  
 - **Front Door (Church Entrance):** Favour & Kerley 
