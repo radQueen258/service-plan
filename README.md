@@ -61,14 +61,14 @@
 - **Offering:** Lídio & Josué  
 
 ### **Sunday, June 01, 2025** (First Sunday - Communion Sunday)  
-- **Front Door (Church Entrance):** Favour & Kerley 
+- **Front Door (Church Entrance):** Moyin & Kerley 
 - **Front Door (Hall Entrance):** Radka  
-- **Inside the Room:** Lidio, Moyin, Ini, Flora  
+- **Inside the Room:** Lidio, Joel, Ini, Flora  
 - **Helping Pastor:** Josue  
 - **Wardrobe:** Suspended until next season
-- **Offering:** Joel & Flora  
+- **Offering:** Moyin & Kerley  
 - **Preparing Communion:** Domingos, Lidio, Kerley
-- **Sanitizing:** Moyin, Flora, Lidio  
+- **Sanitizing:** Joel, Flora, Lidio  
 - **Sharing Bread:** Favour & Ini  
 - **Sharing Blood:** Moyin, Radka, Domingos  
 
