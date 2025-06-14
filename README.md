@@ -84,9 +84,9 @@
 - **Front Door (Church Entrance):** Domingos & Lídio 
 - **Front Door (Hall Entrance):** Radka  
 - **Inside the Room:** Moyin, Favour, Ini 
-- **Helping Pastor:** Domingos  
+- **Helping Pastor:** Josue  
 - **Wardrobe:** Suspended until next season
-- **Offering:** Radka & Josue  
+- **Offering:** Domingos & Lídio  
 
 ### **Sunday, June 22, 2025** (Regular Sunday)  
 - **Front Door (Church Entrance):** Flora & Rebeca  
