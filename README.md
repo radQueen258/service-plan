@@ -125,10 +125,10 @@
 
 ## **Plan de culte en français**
 *(Pas de porte d'entrée (entrée principale) pour ce service.)*
-- **Porte d'entrée (entrée de l'église) :** Esther et Glory
-- **Intérieur de la salle :** Chanceline, Glory, Léon
+- **Porte d'entrée (entrée de l'église) :** Gloire
+- **Intérieur de la salle :** Chanceline, Josaphat
 - **Pasteur auxiliaire :** Josué
 - **Armoire :** --
-- **Offrande :** Esther et Chanceline 
+- **Offrande :** Gloire et Chanceline 
 
 
