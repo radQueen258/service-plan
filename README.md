@@ -7,34 +7,36 @@
 
 | Date                 | Dress Code Color |
 |----------------------|------------------|
-| June 30, 2025         | Black and White  |
-| May 11, 2025         | Free Dress Code  |
-| May 18, 2025         | Pink and white   |
-| May 25, 2025         | Grey  and Blue   |
-| June 01, 2025        | Black and Red    |
-| June 08, 2025        | Free Dress Code  |
-| June 15, 2025        | Black and White  |
-| June 22, 2025        | Free Dress Code  |
+| June 29, 2025        | Free Dress Cod   |
+| July 06, 2025        | Black and White  |
+| July 13, 2025        | Pink and white   |
+| July 20, 2025        | Grey  and Blue   |
+| July 27, 2025        | Black and Red    |
+| Aug 03, 2025         | Free Dress Code  |
+| Aug 10, 2025         | Black and White  |
+| Aug 17, 2025         | Free Dress Code  |
+| Aug 24, 2025         | Blue Jeans and White|
+| Aug 31, 2025         | Black and Red   |
 
 **Notes:**
 
-- **May 11 & June 22, 2025:** This Sunday allows for personal choice in attire, encouraging members to wear colors they prefer😊.
+- **June 29 & Aug 17, 2025:** This Sunday allows for personal choice in attire, encouraging members to wear colors they prefer😊.
 
 # POSITIONS IF JOINT SERVICE / POSTES DU SERVICE INTERARMÉ 😊
 
 ## **Working Plan for the Next 8 Sundays**
 
-### **Sunday, May 04, 2025** (First Sunday - Communion Sunday)  
+### **Sunday, July 06, 2025** (First Sunday - Communion Sunday)  
 - **Front Door (Church Entrance):** Favour & Kerley 
-- **Front Door (Hall Entrance):** Radka  
-- **Inside the Room:** Lidio, Moyin, Ini, Flora  
-- **Helping Pastor:** Josue  
-- **Wardrobe:** Joel 
+- **Front Door (Hall Entrance):** Ini  
+- **Inside the Room:** Lidio, Moyin, Flora  
+- **Helping Pastor:**  Joel  
+- **Wardrobe:**--- 
 - **Offering:** Ini & Kerley  
 - **Preparing Communion:** Domingos, Lidio, Flora
 - **Sanitizing:** Moyin, Flora, Lidio  
 - **Sharing Bread:** Favour & Ini  
-- **Sharing Blood:** Esther, Radka, Domingos   
+- **Sharing Blood:** Esther, Joel, Domingos   
 
 ### **Sunday, May 11, 2025** (Regular Sunday)  
 - **Front Door (Church Entrance):** Chanceline & Joel  
