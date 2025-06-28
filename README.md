@@ -27,7 +27,7 @@
 ## **Working Plan for the Next 8 Sundays**
 
 ### **Sunday, July 06, 2025** (First Sunday - Communion Sunday)  
-- **Front Door (Church Entrance):** Favour & Kerley 
+- **Front Door (Church Entrance):** Favour & Glory 
 - **Front Door (Hall Entrance):** Ini  
 - **Inside the Room:** Lidio, Moyin, Flora  
 - **Helping Pastor:**  Joel  
@@ -38,7 +38,7 @@
 - **Sharing Bread:** Favour & Ini  
 - **Sharing Blood:** Esther, Joel, Domingos   
 
-### **Sunday, May 11, 2025** (Regular Sunday)  
+### **Sunday, July 13, 2025** (Regular Sunday)  
 - **Front Door (Church Entrance):** Chanceline & Joel  
 - **Front Door (Hall Entrance):** Ini  
 - **Inside the Room:** Favour, Moyin, Josue, Kerley  
@@ -46,15 +46,15 @@
 - **Wardrobe:** Lidio  
 - **Offering:** Josue & Joel  
 
-### **Sunday, May 18, 2025** (Regular Sunday)**  
+### **Sunday, july 20, 2025** (Regular Sunday)**  
 - **Front Door (Church Entrance):** Flora & Rebeca  
-- **Front Door (Hall Entrance):** Radka  
-- **Inside the Room:** Ini, Leon, Glory, Kerley, Chanceline 
-- **Helping Pastor:** Joel  
-- **Wardrobe:** Domingos & Lidio  
+- **Front Door (Hall Entrance):** Ini  
+- **Inside the Room:** Glory, Lidio, Chanceline 
+- **Helping Pastor:** Josue  
+- **Wardrobe:** Suspended until next season 
 - **Offering:** Esther & Josue   
 
-### **Sunday,  May 25, 2025** (Thanksgiving Sunday)  
+### **Sunday,  July 27, 2025** (Thanksgiving Sunday)  
 - **Front Door (Church Entrance):** Domingos & Lídio 
 - **Front Door (Hall Entrance):** Ini  
 - **Inside the Room:** Moyin, Josué, Joel 
@@ -62,7 +62,7 @@
 - **Wardrobe:** Suspended until next season
 - **Offering:** Lídio & Josué  
 
-### **Sunday, June 01, 2025** (First Sunday - Communion Sunday)  
+### **Sunday, August 03, 2025** (First Sunday - Communion Sunday)  
 - **Front Door (Church Entrance):** Moyin & Kerley 
 - **Front Door (Hall Entrance):** Ini  
 - **Inside the Room:** Lidio, Joel, Josué, Flora  
@@ -74,7 +74,7 @@
 - **Sharing Bread:** Favour & Ini  
 - **Sharing Blood:** Moyin, Joel, Domingos  
 
-### **Sunday, June 08, 2025** (Regular Sunday)  
+### **Sunday, August 10, 2025** (Regular Sunday)  
 - **Front Door (Church Entrance):** Chanceline & Joel  
 - **Front Door (Hall Entrance):** Ini  
 - **Inside the Room:** Favour, Moyin, Josue, Kerley  
@@ -82,7 +82,7 @@
 - **Wardrobe:** Suspended until next season
 - **Offering:** Josue & Joel   
 
-### **Sunday, June 15, 2025** (Regular Sunday)**  
+### **Sunday, August 17, 2025** (Regular Sunday)**  
 - **Front Door (Church Entrance):** Domingos & Lídio 
 - **Front Door (Hall Entrance):** Radka  
 - **Inside the Room:** Moyin, Favour, Ini 
@@ -90,7 +90,7 @@
 - **Wardrobe:** Suspended until next season
 - **Offering:** Domingos & Lídio  
 
-### **Sunday, June 22, 2025** (Regular Sunday)  
+### **Sunday, August 24, 2025** (Regular Sunday)  
 - **Front Door (Church Entrance):** Flora & Rebeca  
 - **Front Door (Hall Entrance):** Favour  
 - **Inside the Room:** Ini, Leon, Glory, Kerley, Chanceline 
