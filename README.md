@@ -8,7 +8,7 @@
 | Date                 | Dress Code Color |
 |----------------------|------------------|
 | June 29, 2025        | Free Dress Cod   |
-| July 06, 2025        | Black and White  |
+| July 06, 2025        | Black and Brown  |
 | July 13, 2025        | Pink and white   |
 | July 20, 2025        | Grey  and Blue   |
 | July 27, 2025        | Black and Red    |
