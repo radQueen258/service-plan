@@ -28,15 +28,15 @@
 
 ### **Sunday, July 06, 2025** (First Sunday - Communion Sunday)  
 - **Front Door (Church Entrance):** Favour & Glory 
-- **Front Door (Hall Entrance):** Ini  
+- **Front Door (Hall Entrance):** Chanceline  
 - **Inside the Room:** Lidio, Moyin, Flora  
 - **Helping Pastor:**  Joel  
 - **Wardrobe:**--- 
-- **Offering:** Ini & Kerley  
+- **Offering:** Rebeca & Chanceline  
 - **Preparing Communion:** Domingos, Lidio, Flora
 - **Sanitizing:** Moyin, Flora, Lidio  
-- **Sharing Bread:** Favour & Ini  
-- **Sharing Blood:** Esther, Joel, Domingos   
+- **Sharing Bread:** Favour & Rebeca  
+- **Sharing Blood:** Moyin, Joel, Domingos   
 
 ### **Sunday, July 13, 2025** (Regular Sunday)  
 - **Front Door (Church Entrance):** Chanceline & Joel  
