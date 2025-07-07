@@ -20,7 +20,7 @@
 
 **Notes:**
 
-- **June 29 & Aug 17, 2025:** This Sunday allows for personal choice in attire, encouraging members to wear colors they prefer😊.
+- **July 13 & Aug 17, 2025:** This Sunday allows for personal choice in attire, encouraging members to wear colors they prefer😊.
 
 # POSITIONS IF JOINT SERVICE / POSTES DU SERVICE INTERARMÉ 😊
 
