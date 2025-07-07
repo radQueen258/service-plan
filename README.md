@@ -9,7 +9,7 @@
 |----------------------|------------------|
 | June 29, 2025        | Free Dress Cod   |
 | July 06, 2025        | Black and Brown  |
-| July 13, 2025        | Pink and white   |
+| July 13, 2025        | Internationat day😊|
 | July 20, 2025        | Grey  and Blue   |
 | July 27, 2025        | Black and Red    |
 | Aug 03, 2025         | Free Dress Code  |
@@ -44,9 +44,10 @@
 - **Inside the Room:** Favour, Moyin, Josue, Kerley  
 - **Helping Pastor:** Domingos  
 - **Wardrobe:** Lidio  
-- **Offering:** Josue & Joel  
+- **Offering:** Josue & Joel
+- **EVERYONE IS WORKING** 
 
-### **Sunday, july 20, 2025** (Regular Sunday)**  
+### **Suday, july 20, 2025** (Regular Sunday)**  
 - **Front Door (Church Entrance):** Flora & Rebeca  
 - **Front Door (Hall Entrance):** Ini  
 - **Inside the Room:** Glory, Lidio, Chanceline 
