@@ -48,12 +48,12 @@
 - **EVERYONE IS WORKING** 
 
 ### **Suday, july 20, 2025** (Regular Sunday)**  
-- **Front Door (Church Entrance):** Flora & Rebeca  
+- **Front Door (Church Entrance):** Flora & Favour  
 - **Front Door (Hall Entrance):** Ini  
 - **Inside the Room:** Glory, Lidio, Chanceline 
 - **Helping Pastor:** Josue  
 - **Wardrobe:** Suspended until next season 
-- **Offering:** Esther & Josue   
+- **Offering:** Favour & Josue   
 
 ### **Sunday,  July 27, 2025** (Thanksgiving Sunday)  
 - **Front Door (Church Entrance):** Domingos & Lídio 
