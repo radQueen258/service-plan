@@ -120,9 +120,9 @@
 
 ## **Plano do Culto Português**
 *(Sem guarda-roupa, oferendas ou porta da frente à entrada da igreja; será servido chá em seu lugar.)*
-- **Dentro da sala:** Carmen//Rebecca
+- **Dentro da sala:** Carmen
 - **Auxiliar do Pregador:** Domingos
-- **A servir chá:** Radka, Rebeca e Carmen
+- **A servir chá:** Jessica, Lídio
 
 ---
 
