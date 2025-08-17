@@ -86,10 +86,10 @@
 ### **Sunday, August 17, 2025** (Regular Sunday)**  
 - **Front Door (Church Entrance):** Domingos & Lídio 
 - **Front Door (Hall Entrance):** Ini  
-- **Inside the Room:** Chamceline, Favour, Kerly, Joel  
+- **Inside the Room:** Chanceline, Favour, Kerly, Joel  
 - **Helping Pastor:** Joel   
 - **Wardrobe:** Suspended until next season
-- **Offering:** Domingos & Lídio  
+- **Offering:** Ini & Lídio  
 
 ### **Sunday, August 24, 2025** (Regular Sunday)  
 - **Front Door (Church Entrance):** Flora & Rebeca  
