@@ -92,12 +92,12 @@
 - **Offering:** Ini & Lídio  
 
 ### **Sunday, August 24, 2025** (Regular Sunday)  
-- **Front Door (Church Entrance):** Flora & Rebeca  
+- **Front Door (Church Entrance):** Joel & Ini  
 - **Front Door (Hall Entrance):** Favour  
-- **Inside the Room:** Ini, Leon, Glory, Kerley, Chanceline 
-- **Helping Pastor:** Joel  
+- **Inside the Room:** Carmen, Domingos, Lidio, Josue
+- **Helping Pastor:** Josue  
 - **Wardrobe:** Suspended until next season
-- **Offering:** Esther & Josue  
+- **Offering:** Chanceline & Kerley
 
 ---
 
