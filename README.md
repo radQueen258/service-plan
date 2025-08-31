@@ -47,7 +47,7 @@
 - **Offering:** Josue & Joel
 - **EVERYONE IS WORKING** 
 
-### **Suday, july 20, 2025** (Regular Sunday)**  
+### **Suday, August 31, 2025** (Regular Sunday)**  
 - **Front Door (Church Entrance):** Flora & Favour  
 - **Front Door (Hall Entrance):** Ini  
 - **Inside the Room:** Glory, Lidio, Chanceline 
