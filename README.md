@@ -91,13 +91,13 @@
 - **Wardrobe:** Suspended until next season
 - **Offering:** Ini & Lídio  
 
-### **Sunday, August 24, 2025** (Regular Sunday)  
-- **Front Door (Church Entrance):** Joel & Ini  
-- **Front Door (Hall Entrance):** Favour  
-- **Inside the Room:** Carmen, Domingos, Lidio, Josue
+### **Sunday, August 31, 2025** (Regular Sunday)  
+- **Front Door (Church Entrance):** Flora & Kerly  
+- **Front Door (Hall Entrance):** Ini  
+- **Inside the Room:** Favour, Chanceline, Carmen
 - **Helping Pastor:** Josue  
 - **Wardrobe:** Suspended until next season
-- **Offering:** Chanceline & Kerley
+- **Offering:** Ini & Favour
 
 ---
 
